@@ -2,4 +2,11 @@
 
 [GIF](https://github.com/user-attachments/assets/aa43f2e6-6d75-4ca0-a05c-9d604ff10e28)
 
-this is not investment advice !
+
+
+
+
+
+
+
+this is no investment advice !
